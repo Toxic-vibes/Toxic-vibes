@@ -1,4 +1,4 @@
-Wasup my respected niggas</br>
+Wasup my respected fellass</br>
 love you lot.</br> 
 Take care my slimes
 
